@@ -39,6 +39,6 @@ Open to **Data Scientist**, **ML Engineer**, and **Data Analyst** roles across E
 ## 📫 Get in Touch
 
 - 📧 aahson45@gmail.com  
-- 💼 [LinkedIn](www.linkedin.com/in/ali-ahson-061ba4235)  
+- 💼 [LinkedIn](www.linkedin.com/in/ali-ahson)  
 - 📍 Caserta, Italy — open to relocation across Europe  
 - 🟢 **EU Blue Card eligible** · Available immediately upon graduation
